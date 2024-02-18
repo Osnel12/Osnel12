@@ -10,7 +10,7 @@
 - A Cyber Security Enthusiast
 - Playing CTF's at spare time
 - Currently learning Digital Forensic
-- I’m currently open for an Intern or a new job opportunity, this is [my resume](https://read.cv/0xabdulkhalid)
+- I’m currently open for an Intern or a new job opportunity, this is [my resume](https://www.dropbox.com/scl/fi/v7fejxm1rvlc4b6chydwg/CV_2024-02-18_C-phax_DISTEL.pdf?rlkey=fdp2benm00hatcczw0f0xofw7&dl=0)
 
 <img src="https://user-images.githubusercontent.com/73097560/115834477-dbab4500-a447-11eb-908a-139a6edaec5c.gif"><br><br>
 
